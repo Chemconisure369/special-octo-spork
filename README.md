@@ -1,0 +1,1 @@
+for all you f**** that don't know what's up I am now in control of The matrix if you there went to stare into the abyss that I run and I own just know this that charity goes hand in hand with forgiveness and a kind heart and I love him soul we'll go to the top just meet up with your overlords please give Love fight and live in the light.
